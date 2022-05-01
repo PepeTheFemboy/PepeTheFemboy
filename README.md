@@ -1,9 +1,32 @@
-oi eu sou o pepe
-um femboy gay random ai
 discord: Pepe#5039
-vai tomar no cu :)
+Memories broken
+The truth goes unspoken
+I’ve even forgotten my name
+I don’t know the season
+Or what is the reason
+I'm standing here holding my blade
 
-<!---
-PepeTheFemboy/PepeTheFemboy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+A desolate place
+Without any trace
+It’s only the cold wind I feel
+
+It’s me that I spite
+As I stand up and fight
+The only thing I know for real
+
+There will be blood-shed
+The man in the mirror nods his head
+The only one left
+Will ride upon the dragon’s back
+
+Because the mountains don’t give back what they take
+Oh, no
+There will be blood-shed
+It’s the only thing I’ve ever known
+
+Losing my identity
+Wondering have I gone insane
+To find the truth in front of me
+I must climb this mountain range
+Looking downward from this deadly height
+And never realizing why I fight
